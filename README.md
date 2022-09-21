@@ -1,6 +1,6 @@
 # Two-Color-Concepts
 
-#### You can cind your best color combination.
+#### You can find your best color combination.
 ##### Create your brand!
 
 <br>
